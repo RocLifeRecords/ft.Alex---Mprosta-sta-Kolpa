@@ -13,3 +13,4 @@ The lyrics song have a tempo Allegreto (116-120 BPM), close to but not quite all
 In refrain the tempo is Vivace-lively and fast (132-140 BPM). 
 LABELS: EURO POP FUSION POP POP FOLK POP ROCK
 LOCATION: ΑΘΉΝΑ, ΕΛΛΆΔΑ
+https://youtu.be/kuAz-7RPWRM
